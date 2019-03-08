@@ -1,8 +1,4 @@
 # Mitzvah Day with Lava Mae
 
-- [Team Shampoo!!](http://a.co/dn9B0to)
-- [Team Shower Gel!!](http://a.co/8eWEEYk)
-- [Team Toothbrush!!](http://a.co/ePz6KgH)
-- [Team Toothpaste!!](http://a.co/eWeKBpd)
-- [Team Towel!!](http://a.co/2jNm1Lr)
+- Here is the link: https://www.amazon.com/baby-reg/templeisrael-alameda-lavamae--may-2019-alameda/3DXEN4G3QNVV9
 
