@@ -1,6 +1,19 @@
 # Mitzvah Day with Lava Mae
 
-Congratulations to all classes! You did a great job and we have collected our basic kits.  However, Lava Mae has some additional items on their wish list. We encourage you to keep shopping, post to FB, ask you contacts to help out.  Thank you for your generosity!  Happy shopping (through April 21st)! Kits will be put together May 5th.”
+Congratulations to all classes! You did a great job and we have collected our basic kits, as well as <strong>four</strong> additional items! Thank you for your generosity!
 
-[Click here](https://www.amazon.com/baby-reg/templeisrael-alameda-lavamae--may-2019-alameda/3DXEN4G3QNVV9) to be taken to the list! (Please disregard the fact that it is technically a "baby" registry!)
+Thanks to you, we will be putting together roughly <u>600</u> kits that each include:
 
+- Shampoo
+- Body Wash
+- Toothbrush
+- Toothpaste
+- Lotion
+- Lip balm
+- Socks
+- Hand Sanitizer
+- Granola bar
+
+These will be a wonderful and generous gift from our temple community to those around us! Thank you everyone, again, for this fantastic project! 
+
+Next, be sure to stop by Temple on May 5th from 10AM to 12PM to help us assemble these kits, and then stay 12PM-1PM to eat lunch and celebrate with us! We can't wait to see you all there!
